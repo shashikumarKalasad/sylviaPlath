@@ -1,5 +1,5 @@
 # sylviaPlath 
-having bitten on liffe like a 
+having bitten on life like a 
 sharp apple
 Or,playing it like fish,been
 happy,
